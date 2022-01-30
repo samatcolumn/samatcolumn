@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Sam Stern (f.k.a. @samtstern and @hatboysam)
+👋 Hi, I’m Sam Stern (f.k.a. @samtstern and @hatboysam)
